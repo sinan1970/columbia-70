@@ -1,1 +1,2 @@
-# columbia-70
+You're the best
+You're capable
